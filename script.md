@@ -6,7 +6,7 @@
 
 **[Intro — smile, look at the camera]**
 
-Hi, my name is Kyrylo Holovatenko. I'm 19 years old, and I'm from Ukraine. I've been living in Stuttgart, Germany, building a new life here while staying connected to home.
+Hi, my name is Kyrylo Holovatenko. I'm 19 years old, and I'm from Ukraine. I've been living in Stuttgart, Germany, building a new life here.
 
 **[Your story]**
 
