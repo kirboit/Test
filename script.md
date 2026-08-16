@@ -18,7 +18,7 @@ I already had the chance to do the Piscine at 42 Heilbronn, and it genuinely cha
 
 **[The core ask — financial need]**
 
-Right now, I receive state financial support while I work on getting my footing here. Studying at 42 full-time, more than 40 hours a week, means moving to Heilbronn and being able to focus completely — without splitting my energy between the program and just getting by. This scholarship wouldn't just help me attend. It would let me actually give everything I have to it, the way the program deserves.
+Right now, I receive state financial support while I work on getting my footing here. Studying at 42 full-time, more than 40 hours a week, means moving to Heilbronn and being able to focus completely — without splitting my energy between the program and a job. This scholarship wouldn't just help me attend. It would let me actually give everything I have to it, the way the program deserves.
 
 **[Closing]**
 
